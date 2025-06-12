@@ -1,0 +1,1 @@
+# Diokophobia-Script
